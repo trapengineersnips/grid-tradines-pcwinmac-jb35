@@ -1,4 +1,4 @@
-# 
+# آمن grid trading bot for futures إعدادات مسبقة لـ Mac OS | نخبة grid trading bot for futures إعدادات مسبقة لـ PC Windows. مع حماية MEV و لوحات معلومات مخصصة — مُحسَّن لأقصى أداء على جميع المنصات.
 
 
 
